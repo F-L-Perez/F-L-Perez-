@@ -1,5 +1,5 @@
-# 💫 F. L. Pérez, at your service.
-
+# About 
+💫 F. L. Pérez, at your service.
 I.T. student & enthusiast. Page is a work in progress.
 
 #### Currently Learning: 
